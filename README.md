@@ -1,0 +1,5 @@
+-  Meu nome é Meryjane Farias
+-  Atualmente estou no 1° periodo de ADS
+-  No momento trabalho como Microempreededora
+-  Me considero uma pessoa muito determinada, otimista e prestativa.
+-  Onde me encontrar: meryjanecabral@yahoo.com.br
